@@ -1,5 +1,5 @@
-> **Independent Writing** 
->
+### Independent Writing 
+
 > Do you agree or disagree with the following statement? 
 >
 > **Providing Internet access is just as important as other services, such as building roads,so governments should offer Internet access to all of their citizens at no cost.**
@@ -17,7 +17,7 @@
 
 
 
-
+### Writing
 
 
 Many people assert that we should pay for internet access by common sence. I believe, however, that gorvernments ought to provide the service without extra payment on the basis that social benifits will accrue when goverment plays an active role in providing internet access, an necessary public service.
@@ -28,12 +28,12 @@ One reason why I agree the statement is that this service satisfies fundamental 
 
 
 
-Second reason is that this service enhances the development of society. Offering free internet access reduce the cost people take to obtain acknowledges and to build relationshaip with the others. Thus it is easier for people to acquire better education and to seek commercial partners. That sparks a boor for our society to bring the extra economic and another social benifts. Therefor, although goverments take a given cost to serve people free internet, development of economy and education is the best return.
+Second reason is that this service enhances the development of society. Offering free internet access reduces the cost people take to obtain acknowledges and to build relationshaip with the others. Thus it is easier for people to acquire better education and to seek commercial partners. That sparks a boor for our society to bring the extra economic and another social benifts. Therefor, although goverments take a given cost to serve people free internet, development of economy and education is the best return.
 
 
 
-The implicit rational of disagreement of the statement seems to be that the goverment resources that be used to provid internet access can directly help people to solve the problem of food, clothing and shelter. And the latter needs looks more fundamental. But as we know, teaching a person who is hungry to fish is better than directly giving him fish. Consider Canada's film industry, in which the Canadian goverment invested, which offer a great many jobs for film workers in Canada as a reslut. The same gose for offering free internet access that create the enviroment with good education and economy. Although internet access dose not solve the most basic problem directly, it is helpful to solve the issue that people care about.
+The implicit rational of disagreement of this statement seems to be that the goverment resources that be used to provid internet access can directly help people to solve the problem of food, clothing and shelter. And the latter needs looks more fundamental. But as we know, teaching a person who is hungry to fish is better than directly giving him fish. Consider Canada's film industry, in which the Canadian goverment invests, which offers a great many jobs for film workers in Canada as a reslut. The same gose for offering free internet access that create the enviroment with good education and economy. Although internet access dose not solve the most basic problem directly, it is helpful to solve the issue that people care about.
 
 
 
-In the final analysis, 
+In the final analysis, providing internet access at no cost actually satisfies a kind of fundamental human need and supports the developemt of economy and education. Though goverments spend a certain cost to offer this service, the return of this policy is worthy.
