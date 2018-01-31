@@ -8,9 +8,6 @@
 
 -  agree realistic goals
 
-1. 实际目标考虑了自己的实际能力，更适合你
-2. 更容易实现
-3. 梦想重要 但是空有野心没有用 还是实际目标 否则什么都没有
 
 
 
@@ -20,9 +17,9 @@ This statement raises a variety of issues about dreams and life goals and the ju
 
 
 
-The first is that the realistic goal is more suitable for you. One of the most crucial abilities for us is judging yourself certainly. This means that you need to clearly know what you are good at and what job do you like. For example,  you dream to be a doctor to save the life of people, that sounds brilliant, but you are not good at making decision immediately in the emergency situations that is usual in the work of doctors.In this enviroment, your choice maybe straightly affect the patients'  life. Not only may people die for your unsuitable decision, but you will fail in the feeling of guilty for this deeply. Are you sure that this great pressure is what you want ? Choosing a job, such as designer or teacher, that you have more time to think clear and then make the decision when you face to trade-offs is better for you. Your dream maybe looks wonderful, but the realistic goals is what you really need.
+The first is that the realistic goal is more suitable for you. One of the most crucial abilities for us is judging yourself certainly. This means that you need to clearly know what you are good at and what job do you like. For example,  you dream to be a doctor to save the life of people, that sounds brilliant, but actually you are not good at making decision immediately in the emergency situations that is usual in the work of doctors.In this enviroment, your choice maybe straightly affect the patients'  life. Not only may people die for your unsuitable decision, but you will fall in the feeling of guilty for this deeply. Are you sure that this great pressure is what you want ? Choosing a job, such as designer or teacher that you have more time to think clear and then make the decision when you face with trade-offs, is better for you. Your dream maybe look wonderful, but the realistic goals is what you really need.
 
 ​       
 
-The second reason is that it is more easier for you to come ture.
+The second reason is that it is more easier for you to come ture. Whatever you make efforts for a realistic goal or your ambitious dream, what you really want is success. Continue failure will break your confident that help you finally 
 
