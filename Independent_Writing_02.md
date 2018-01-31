@@ -21,5 +21,5 @@ The first is that the realistic goal is more suitable for you. One of the most c
 
 ​       
 
-The second reason is that it is more easier for you to come ture. Whatever you make efforts for a realistic goal or your ambitious dream, what you really want is success. Continue failure will break your confident that help you finally 
+The second reason is that it is more easier for you to come ture. Whatever you make efforts for a realistic goal or your ambitious dream, what you really want is success to enjoy the happiness of obtaining. You will often experience failure when you try to come ture your dream that is lack of the clear judgement for yourself . Continue failure will break your confident that help you to overcome diffculties. The fianl result of this is that you may be choose to give up your dream. Instead, realistic goals is more easily to 
 
