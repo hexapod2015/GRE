@@ -33,4 +33,5 @@ The second reason is that the capability you obtain fron the history courses can
 
 
 
-The implicit rational of disagreement of this statement is these historical courses take time of another more crucial major courses. 
+The implicit rational of disagreement of this statement is these historical courses take time of another more crucial major courses. Yet
+
