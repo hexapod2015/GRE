@@ -11,7 +11,7 @@
 -  agree 
 
 
-1、大学属于通识教育（university general education），应该配有基础课程（curriculum）
+1、大学通识教育（university general education），应该配有基础课程（curriculum）
 
 2、历史的教育的意义在于经验的学习 对每个学科都有意义comprehensive capability 	Academic Achievements
 
