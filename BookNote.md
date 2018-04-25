@@ -29,3 +29,12 @@
 7. the attainment of happiness becomes the ultimate or highest goog for Aristotle
 8. i shouldn't rely on other people for it.
 9. the exercise of reason
+
+**20180425**
+
+1. from back then
+2. Okay, we've been discussing films in the 1920s and 30s, and how **back then** film categories, as we know them today, had not yet been established.
+3. run for a little while
+4. They usually **hung around** together most of the time
+5. **it doesn't seem like** it would be much fun to watch
+6. There must be something about it,  or the professor wouldn't assign it.
