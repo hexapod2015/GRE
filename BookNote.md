@@ -30,6 +30,24 @@
 8. i shouldn't rely on other people for it.
 9. the exercise of reason
 
+**20180423**
+
+1. prevalent: Smoking is becoming increasingly prevalent among younger women...
+2. be restricted to: The problem is not restricted to the southeast.
+3. fluctuated: Body temperature can fluctuate if you are ill.
+4. ...the three red deer stags **browsing** 50 yards from my lodge **on** the fringes of the forest.
+5. Helen gained some **compensation for** her earlier defeat by winning the final open class...
+6. He hailed this week's arms agreement but **in the same breath** expressed suspicion about the motivations of the United States.
+7. Universities and other research establishments **bemoan** their lack of funds.
+8. meadow = prairie
+9. She says the way the bill was passed **bodes ill** for democracy...
+10. The rhododendrons **encroached** ever more  **on** the twisting drive...
+11. But for the black-tailed deer, human pressure has had just the opposite effect.
+12. Last year 400,000 acres of land **yielded** a crop worth $1.75 billion.
+13. the most profound reason
+14. Fish was a major source of **protein** for the working man.
+15. ​
+
 **20180425**
 
 1. from back then
@@ -38,3 +56,34 @@
 4. They usually **hung around** together most of the time
 5. **it doesn't seem like** it would be much fun to watch
 6. There must be something about it,  or the professor wouldn't assign it.
+
+**20180501**
+
+1. **close today‘s class**
+2. **keep in mind**: you are reminding or warning them about something important which they should 
+   remember. 
+3. all sort of **profound** quesetion: This is a book full of profound, original and challenging insights.
+4. **wounder about** things: It makes you wonder about the effect on men's behaviour...
+5. *konwing something*
+6. self **reliance**: the country's increasing reliance on foreign aid.
+7. *one of the main beliefs*
+8. *taught*
+9. **conviction**: Their religious convictions prevented them from taking up arms.
+10. **ties that in with a sort of**
+11. **in touch with** ourselves in a way: The organisation would be in touch with him tomorrow...
+12. **have a glimpse of** this truth: As university campuses become increasingly multi-ethnic, they offer a glimpse of the conflicts society will face tomorrow.
+13. **comformity**: The prime minister is, **in conformity with** the constitution, chosen by the president.
+14. **wills**: No doubt he was forced to leave his family **against his will**.
+15. **for the sake of**: For the sake of historical accuracy, please permit us to state the true facts...
+16. **fit in**: She was great with the children and **fitted in** beautifully.
+17. it is **at odds with**: He was at odds with his Prime Minister...
+18. *emphasizes*
+19. **drives** this argument **home**: He **drove home** his points.
+20. **conforming with** yourself or your past: We **conformed with** social and family expectations.
+21. *content*
+22. *inconsistency*
+23. *ship's voyage*
+24. justifies all the truth **along the way**:You may have to learn a few new skills **on/along the way**.
+25. I can **attest to** that: Police records **attest to** his long history of violence...
+    ​
+
