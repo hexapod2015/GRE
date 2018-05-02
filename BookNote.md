@@ -85,5 +85,31 @@
 23. *ship's voyage*
 24. justifies all the truth **along the way**:You may have to learn a few new skills **on/along the way**.
 25. I can **attest to** that: Police records **attest to** his long history of violence...
-    ​
 
+
+
+
+**20180502**
+
+1. sum up some of the main points
+2. *official*
+3. *depression*
+4. Out-of- work artist
+5. Have access to the arts
+6. **rural area**
+7. End up wasting lots of money
+8. Primary objective of
+9. *politicians*
+10. **push for**
+11. **major funding**
+12. *soul or spirit*
+13. **a federal subsidy**
+14. *altruistic*
+15. Be patrons of the arts
+16. **tax incentives**
+17. Have a plaque somewhere acknowledging
+18. *get ride of*
+19. they only succeeded in **taking away** half the annual budget
+20. …as there are those who agree
+21. *oppose*
+22. ​
