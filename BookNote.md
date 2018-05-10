@@ -57,6 +57,10 @@
 5. **it doesn't seem like** it would be much fun to watch
 6. There must be something about it,  or the professor wouldn't assign it.
 
+
+
+
+
 **20180501**
 
 1. **close today‘s class**
@@ -112,4 +116,33 @@
 19. they only succeeded in **taking away** half the annual budget
 20. …as there are those who agree
 21. *oppose*
-22. ​
+
+
+
+
+
+
+**20180510**
+
+1. we leave for today/leave school
+2.  touch on an interesting subject
+3. covering rocks
+4. It is quite mystery
+5. *desert plain/floor*
+6. **all we know for sure is** 
+7. *theories*
+8. the ground of this deaert is made of clay
+9. *occasional rain*
+10. It is safe to see that issus's been **settled**: the issue could be settled by requiring public education for everyone
+11. *embed*
+12. *separate routes*
+13. **vibrate**
+14. **tilting**
+15. **magnetic force**
+16. *Wilderness area*
+17. **by law**
+18. address issue from a wider perspective
+19. **decisive evidence**
+20. ​
+21. ​
+
