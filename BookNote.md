@@ -125,7 +125,7 @@
 **20180510**
 
 1. we leave for today/leave school
-2.  touch on an interesting subject
+2. touch on an interesting subject
 3. covering rocks
 4. It is quite mystery
 5. *desert plain/floor*
@@ -143,6 +143,37 @@
 17. **by law**
 18. address issue from a wider perspective
 19. **decisive evidence**
-20. ​
-21. ​
 
+
+
+
+
+
+**20180510**
+1. there are compelling reasons in favor of another
+2. *enormous*
+3. **Impact crater**
+4. **known as**
+5. on the far siade of moon
+6. *we'll call it the*
+7. **color-coated image**
+8. **unlike earlier lunar missions**
+9. enable it to send back
+10. **Correspond to** : That bill says people can only use the bathroom that corresponds to their biological sex.
+11. *elevation*
+12. **Basin**
+13. *average depth*
+14. **in diameter**
+15. **crater**
+16. *Redistributed pieces of the planet's crust*
+17. **the layer beneath the crust**
+18. Was **exposed** by the **impact**
+19. **penetrate**: Water penetrated the room.
+20. *compositon*
+21.  *precise*
+22. **Meteor showers**
+23. **such crude estimates**
+24. We can do better than that
+25. *there is other things worth investigating*
+26. *reflective*
+27. 第27句
